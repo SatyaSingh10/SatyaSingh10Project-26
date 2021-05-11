@@ -1,0 +1,1 @@
+This Recipe is of a wonderful vanilla cake for everybody to enjoy Anybody can easily make this cake as the steps are easy to replicate.All the ingredients are everyday basic materials that are easy to find.
